@@ -1,3 +1,3 @@
-## |STARFISTT!!
+## ...
 
 ![iron fist spring festival skin](https://github.com/user-attachments/assets/29ee49bc-90f5-4ee5-9737-c95315b28e2f)
