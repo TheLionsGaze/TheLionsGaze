@@ -1,5 +1,5 @@
 ...
-![Image](https://github.com/user-attachments/assets/cd3b0207-8ef3-42da-b8f5-42c03d59784e)
+![Image](https://github.com/user-attachments/assets/745f0553-172f-4e50-b87f-93457e5dda83)
 
 
 # 𐙚 ‧₊˚ ⋅*HELLO* !
